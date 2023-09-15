@@ -1,1 +1,0 @@
-# studywitheasin.com
